@@ -1,2 +1,1 @@
-# AND I WAAAANT YOU TO KNOOOOW BAAABY
-I LOVE YOU LIKE A LOVE SONG BABY, I LOVE YOU LIKE A LOVE SONG BABY............
+#Let me tell you the tradegy of the Dark Plagues the WIse. 
